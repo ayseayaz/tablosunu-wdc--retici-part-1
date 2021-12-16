@@ -1,0 +1,1 @@
+# tablosunu-wdc--retici-part-1
